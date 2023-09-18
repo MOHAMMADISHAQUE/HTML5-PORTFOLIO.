@@ -1,3 +1,3 @@
 # HTML5-PORTFOLIO.
 
-mohammadishaque.github.io/HTML5-PORTFOLIO./  CLICK HERE TO GIVE A VISIT
+https://mohammadishaque.github.io/HTML5-PORTFOLIO./ 
